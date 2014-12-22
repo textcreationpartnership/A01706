@@ -35,48 +35,50 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A breve cronycle of the Bysshope of Romes blessynge and of his prelates beneficiall and charitable r
+
+1. ¶ The preface.
+
 #####Body#####
+¶Kynge Herolde.IN the tyme of Herolde the KyngeRobert of cāterbury had his banyſhingeYe may be ſure
+    _ ¶Kynge Herolde.
 
-1. ¶Kynge Herolde.
+    _ ¶William conqueror.
 
-1. ¶William conqueror.
+    _ ¶William the ſeconde.
 
-1. ¶William the ſeconde.
+    _ ¶Henry the fyrſte.
 
-1. ¶Henry the fyrſte.
+    _ ¶Stephyn.
 
-1. ¶Stephyn.
+    _ ¶Henry the ſeconde.
 
-1. ¶Henry the ſeconde.
+    _ ¶Rycharde the fyrſte.
 
-1. ¶Rycharde the fyrſte.
+    _ ¶Kynge Iohn̄.
 
-1. ¶Kynge Iohn̄.
+    _ ¶Henry the thyrde.
 
-1. ¶Henry the thyrde.
+    _ ¶Edwarde the fyrſte.
 
-1. ¶Edwarde the fyrſte.
+    _ ¶Edwarde the ſeconde.
 
-1. ¶Edwarde the ſeconde.
+    _ ¶Edwarde the thyrde.
 
-1. ¶Edwarde the thyrde.
+    _ ¶Richarde the ſeconde.
 
-1. ¶Richarde the ſeconde.
+    _ ¶Henry the fourth.
 
-1. ¶Henry the fourth.
+    _ ¶Henry the fyfte.
 
-1. ¶Henry the fyfte.
+    _ ¶Henry the .vi.
 
-1. ¶Henry the .vi.
+    _ ¶Edwarde the .iiii.
 
-1. ¶Edwarde the .iiii.
+    _ ¶Rycharde the thirde.
 
-1. ¶Rycharde the thirde.
+    _ ¶Henry the .vii.
 
-1. ¶Henry the .vii.
-
-1. ¶Henry the .viij.
+    _ ¶Henry the .viij.
 
 **Types of content**
 
